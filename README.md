@@ -3,5 +3,3 @@
 There has been long way back to home
 come home sooner
 conflict example
-local try kela ahe
-jnfiweufi
